@@ -7,6 +7,7 @@
 **Yunus-Obod st., Tashkent,  Uzbekistan**                 
 * email: sxclxse@gmail.com 
 * Inst: @sxclxse 
+* Telegram: @sxclxse
 * Mobile: +998901571090 
 -------------------     ----------------------------
 ## Education
